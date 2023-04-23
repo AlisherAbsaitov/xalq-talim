@@ -1,0 +1,2 @@
+# xalq-talim
+wd
